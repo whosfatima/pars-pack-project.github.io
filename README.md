@@ -1,1 +1,0 @@
-# pars-pack-project.github.io
